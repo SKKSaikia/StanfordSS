@@ -1,6 +1,6 @@
 # Stanford Summer Quarter
 
-<b>STANFORD </b> ❤ , the love of my Life, will always remain close to my heart. The Beautiful Weather, Highly Motivated, Humble and Talented People and the crazy stuff that goes around is to die for. I miss you <b>STANFORD </b>, more than anything. The learning curve at STANFORD is beautiful; turning Idea into reality; being the Pirate of the ship in the heart of Silicon Valley ; Doing the unexpected and the unforseen is what makes STANFORD : 🔴 <b>STANFORD</b> 🔴
+<b>STANFORD </b> ❤ , the love of my Life, will always remain close to my heart. The Beautiful Weather, Highly motivated, humble and talented people all around and the crazy stuff that goes around is to die for. I miss you <b>STANFORD </b>, more than anything. The learning curve at STANFORD is beautiful; turning Ideas into reality; being the Pirate of the ship in the heart of Silicon Valley ; Doing the unexpected and the unforseen is what makes STANFORD : 🔴 <b>STANFORD</b> 🔴
 
 <img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/1280px-Stanford_Oval_May_2011_panorama.jpg">
 
