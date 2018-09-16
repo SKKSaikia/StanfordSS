@@ -1,7 +1,7 @@
 # StanfordSS
 Stanford Summer☀ Session / Silicon Valley
 
-Lot's of Memories, lots of dreams and . There I was, at Stanford as an undergrad student () . Excited the night, I was accepted to Stanford Summer Session
+<b>STANFORD </b> ❤ , the love of my Life, will always remain dear to my heart. The Beautiful Weather, Highly Motivated, Humble and Talented People and the crazy stuff that goes around is to die for. I miss you <b>STANFORD </b>, more than anything.
 
 <img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/1280px-Stanford_Oval_May_2011_panorama.jpg">
 
