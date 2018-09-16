@@ -4,7 +4,7 @@
 
 <img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/1280px-Stanford_Oval_May_2011_panorama.jpg">
 
-The beautiful campus and the beautiful weather is the place where you want to be. In the heart of Silicon Valley; there I was, making new friends from across the globe, discovering things and getting involved with opportunities I didn't had elsewhere, meeting people whom I followed and really admired. Heart raced when when you get to have breakfast with <b>JEFF DEAN</b> ; Yes! you read it right; JEFF DEAN, The GOOGLE BRAIN LEAD. Dreams turned into reality ; My whole existence just came into perception in my mind; chuckled; smiled the widest and I danced a little in the STANFORD DORM when I received an email from JEFF DEAN ; The GOD of AI, Little did I knew, What was to come, It was just the beginning , STANFORD had a lot in store for me.
+The beautiful campus and the beautiful weather is the place where you want to be. In the heart of Silicon Valley; there I was, making new friends from across the globe, discovering things and getting involved with opportunities I didn't have elsewhere, meeting people whom I followed and really admired. Heart raced when when you get to have breakfast with <b>JEFF DEAN</b> ; Yes! you read it right; JEFF DEAN, The GOOGLE BRAIN LEAD. Dreams turned into reality ; My whole existence just came into perception in my mind; chuckled; smiled the widest and I danced a little in the STANFORD DORM when I received an email from JEFF DEAN ; The GOD of AI, Little did I knew, What was to come, It was just the beginning , STANFORD had a lot in store for me.
 
 <b> #PRE STANFORD </b>
 
