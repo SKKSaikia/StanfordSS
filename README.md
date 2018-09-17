@@ -46,7 +46,7 @@ Cry of Excitement and Joy; I couldn't believe it; I never dreamt of getting repl
 
 I knew I had to meet all the legends (IAN Goodfellow (Father of Deep Learning/GANs) and Guido Van Rossum(Father of Python)). I was sceptical and not sure if they would accept my request to meet them, but time told a different story. They were the most humble and down to Earth legends we met. I was very inspired and learned a lot from them. I will always cherish that I met them and for me they are my source of motivation/ my master. Thank You so much 💗
 
-<img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/ig.jpg" height=200px>
+<img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/ig.jpg" height=200px><a> </a><img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/IMG_20180801_111334.jpg" height=153px><a> </a>
 
 I was sitting right there in my room ; chuckled; I felt very lucky , Peter's AIMA ; Ian's Deep Learning ; Guido's Python & Jeff's Work are extraordinary and they are one in the whole world, and I was right there with them. Such Happiness.
 I had weekly assignments as well; but I had to manage time at night to taste the best of both worlds. We were out to explore again, this time we were hosted by Shubho Sengupta, Senior Researcher in Facebook AI Research (FAIR); we got to see FAIR workspcaes; learned how things work within Facebook and even passed by Juckerberg's office, with him sitting in his office.
