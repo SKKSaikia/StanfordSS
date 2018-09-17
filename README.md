@@ -42,7 +42,7 @@ I lost most of my hope of meeting the people I admired the most from Stanford; I
 
 <b>#SILICON VALLEY 🌃🚀 </b>
 
-Cry of Excitement and Joy; I couldn't believe it; I never dreamt of getting replies from the AI GODs from Industry. Yes I mailed <b>Peter Norvig (Director of Research, Google) & JEFF DEAN(Lead, Google Brain)</b> and seeing seeing their reply at the same time in two different threads, I couldnt believe my eyes; I almost blacked out. So much memories; so much inspiration from Peter & Jeff; and here I was: Hi from Jeff and Peter. They are so humble and nice; they helped me quickly set up appointments with them. I asked my roommate If he was free and wanted to visit. He agreed ; says, "Why not bro!" and the rest is history.
+Cry of Excitement and Joy; I couldn't believe it; I never dreamt of getting replies from the AI GODs from Industry. Yes I emailed <b>Peter Norvig (Director of Research, Google) & JEFF DEAN(Lead, Google Brain)</b> and seeing their reply at the same time in two different threads, I couldnt believe my eyes; I almost blacked out. So much memories; so much inspiration from Peter & Jeff; and here I was: Hi from both of my inspiration ; Jeff and Peter. They are so humble and nice; they helped me quickly set up appointments with them. I asked my roommate If he was free and wanted to visit. He agreed ; says, "Why not bro!" and the rest is history.
 
 <img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/jp.jpg" height=200px>
 
@@ -76,3 +76,7 @@ By then I made a lot of new friends Internationally, who were doing amazing thin
 
 Do I miss Silicon Valley ?<br/>
 Yes, I do. The people ; the community; and the craziness that goes around there. With a beautiful weather, that helps concentrate and really dedicate oneself to something; is to die for. I felt bad, leaving my second home; the place that gave me so much; the place where I felt safe and hungry each day. I wanted to be there; the projects and opportunities I would miss; the innovation and motivation I would need; was all there. Sigh ! a Deep breath, I hope someday I get to do something for Computer Science; for Humanity; I promised Guido and Ian to come back; to do something worthy. I promise I will ; someday  🌠 
+
+Signing off
+
+amartya@stanford.edu
