@@ -24,7 +24,9 @@ Journey to SF, California would have been very hard and daunting without my cous
 
 <b> #STANFORD 🏰⛅⛲ </b>
 
-I fell in <font color="red">love</font> with <b>STANFORD</b> the day I moved in. I was alloted room - 317, Meier Dorm, Lagunita Court, Santa Teresa St., Stanford.
+I fell in love with <b>STANFORD</b> the day I moved in. I was alloted room - 317, Meier Dorm, Lagunita Court, Santa Teresa St., Stanford. A day later my roommate arrived from CANADA and there he was "YULONG WANG" ; my roommate at STANFORD (The best roommate one could have had). We became good buddies and would eventually explore the whole Silicon Valley together.
+I enrolled in CS:110 - Principles of Computer Systems and ME:344 - Introduction to High Performance Computing ; because I had to know Systems and HPC for distributed Deep Learning and Parallel processing for Deep Learning. But <b>CS:110</b> is a pretty notorious course at STANFORD; It asked for too much prerequisite and CS:107 to be a must; I had to change to CS::161 - Design and Analysis of Algorithms. I wanted to learn systems; so I audited the course; and gave exam for CS:161 and ME:344. In total I was learning CS:110, CS:161, ME:344. I love how you can Audit courses you want to learn at STANFORD. You get to learn stuff. At the end of the quarter, I earned a 3.7/4 GPA from STANFORD ; with A-in the HPC course. The HPC course had 2 major projects ; Weekly assignments and in-class participation. I was done with mid-sems and Finals. But attending classes and writing exams ; earning credits was the least of priority for me.
+
 
 <b> #SILICON VALLEY 🌃🚀 </b>
 
