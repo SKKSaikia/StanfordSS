@@ -46,7 +46,7 @@ Cry of Excitement and Joy; I couldn't believe it; I never dreamt of getting repl
 
 <img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/jp.jpg" height=200px>
 
-I knew I had to meet all the legends (IAN Goodfellow (Father of Deep Learning/GANs) and Guido Van Rossum(Father of Python)). I was sceptical and not sure if they would accept my request to meet them, but time told a different story. They were the most humble and down to Earth legends we met. I was very inspired and learned a lot from them. I will always cherish that I met them and for me they are my source of motivation/ my master. Thank You so much 💗
+I knew I had to meet all the legends (<b>IAN Goodfellow</b> (Father of Deep Learning/GANs) and <b>Guido Van Rossum</b> (Father of Python)). I was sceptical and not sure if they would accept my request to meet them, but time told a different story. They were the most humble and down to Earth legends we met. I was very inspired and learned a lot from them. I will always cherish that I met them and for me they are my source of motivation/ my master. Thank You so much 💗
 
 <img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/ig.jpg" height=200px><a> </a><img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/IMG_20180801_111334.jpg" height=200px><a> </a>
 
