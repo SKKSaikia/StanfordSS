@@ -30,5 +30,5 @@ I was Excited; yet a bit worried at the same time; None of my family members fro
 What do I miss most about Silicon Valley ?<br/>
 The people ; the community; and the craziness that goes around there. With a soothing weather, that helps concentrate and really dedicate oneself to something; is to die for.
 
-With a heavy heart; I bid goodbye ; to STANFORD, group hugged my room-mate Yulong :🇨🇦: and my Good friend Laura in the San Francisco International Airport. We knew; it was a goodbye  I landed in INDIA
+With a heavy heart; I bid goodbye ; to STANFORD, group hugged my room-mate Yulong and my Good friend Laura in the San Francisco International Airport. We knew; it was a goodbye for a very long time. Goodbye 💐 skk will always be there for you. Though physcially separated; I felt I knew them for a lifetime. It was hard, but it is the beauty of Life. My family was waiting back home. Skk flies out ; lands in INDIA.
 
