@@ -31,6 +31,5 @@ With a heavy heart; I bid goodbye to STANFORD, group hugged my room-mate Yulong 
 
 By then I made a lot of new friends Internationally, who were doing amazing things in CS; The day I landed, I met my friend Kalpit Veerwal from IIT Bombay, CSE [Yes, the topmost computer science school in India] and he showed me around campus. Kalpit was the topper in IIT JEE - M , scoring a perfect 360/360; ending in Limca book of records; Yes, the same exam I didn't make through. Life is beautiful. The twists are turns in life will take you where you belong; you just have to be yourself.
 
-
-What do I miss most about Silicon Valley ?<br/>
-The people ; the community; and the craziness that goes around there. With a soothing weather, that helps concentrate and really dedicate oneself to something; is to die for.
+Do I miss Silicon Valley ?<br/>
+Yes, I do. The people ; the community; and the craziness that goes around there. With a beautiful weather, that helps concentrate and really dedicate oneself to something; is to die for. I felt leaving my second home; the place that gave me so much; the place where I felt safe and hungry each day. I wanted to be there; the projects and opportunities I would miss; the innovation and motivation I lacked; was all there. Sigh ! a deep breath, I hope someday I get to do something for Computer Science; for Humanity; I promised Guido and Ian to come back; but only time will tell. I promise I will ; someday  🌠 
