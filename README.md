@@ -42,7 +42,7 @@ I lost most of my hope of meeting the people I admired the most from Stanford; I
 
 <b>#SILICON VALLEY 🌃🚀 </b>
 
-Cry of Excitement and Joy; I couldn't believe it; I never dreamt of getting replies from the AI GODs from Industry. Yes I emailed <b>Peter Norvig (Director of Research, Google) & JEFF DEAN(Lead, Google Brain)</b> and seeing their reply at the same time in two different threads, I couldnt believe my eyes; I almost blacked out. So much memories; so much inspiration from Peter & Jeff; and here I was: Hi from both of my inspiration ; Jeff and Peter. They are so humble and nice; they helped me quickly set up appointments with them. I asked my roommate If he was free and wanted to visit. He agreed ; says, "Why not bro!" and the rest is history.
+Cry of Excitement and Joy; I couldn't believe it; I never dreamt of getting replies from the AI GODs from Industry. Yes I emailed <b>PETER NORVIG (Director of Research, Google) & JEFF DEAN (Lead, Google Brain)</b> and seeing their reply at the same time in two different threads, I couldnt believe my eyes; I almost blacked out. So much memories; so much inspiration from Peter & Jeff; and here I was: Hi from both of my inspiration ; Jeff and Peter. They are so humble and nice; they helped me quickly set up appointments with them. I asked my roommate If he was free and wanted to visit. He agreed ; says, "Why not bro!" and the rest is history.
 
 <img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/jp.jpg" height=200px>
 
