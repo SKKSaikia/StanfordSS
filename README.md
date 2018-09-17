@@ -46,11 +46,12 @@ Cry of Excitement and Joy; I couldn't believe it; I never dreamt of getting repl
 
 <img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/jp.jpg" height=200px>
 
-I knew I had to meet all the legends (<b>IAN Goodfellow</b> (Father of Deep Learning/GANs) and <b>Guido Van Rossum</b> (Father of Python)). I was sceptical and not sure if they would accept my request to meet them, but time told a different story. They were the most humble and down to Earth legends we met. I was very inspired and learned a lot from them. I will always cherish that I met them and for me they are my source of motivation/ my master. Thank You so much 💗
+I knew I had to meet all the legends ( <b>IAN Goodfellow</b> (Father of Deep Learning/GANs) and <b>GUIDO VAN ROSSUM</b> (Father of Python)). I was sceptical and not sure if they would accept my request to meet them, but time told a different story. They were the most humble and down to Earth legends we met. I was very inspired and learned a lot from them. I will always cherish that I met them and for me they are my source of motivation/ my master. Thank You so much 💗
 
 <img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/ig.jpg" height=200px><a> </a><img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/IMG_20180801_111334.jpg" height=200px><a> </a>
 
-I was sitting right there in my room ; chuckled; I felt very lucky , Peter's AIMA ; Ian's Deep Learning ; Guido's Python & Jeff's Work are extraordinary and they are one in the whole world, and I was right there with them. Such Happiness.
+I was sitting right there in my room-317 ; chuckled; I felt very lucky , Peter's AIMA ; Ian's Deep Learning ; Guido's Python & Jeff's Work are extraordinary and they are one in the whole world, and I was right there with them. Such Happiness and Inspiration. In no time I found myself chatting with <b> François Chollet </b> (Father of Keras) ;<b> Geoffrey Hinton </b>( Father of Deep Learning; I guess I don't have to introduce him ) ; Sheryl Sandberg; Steve Wozniak - and in no time ; I was in the heart of <b>Deep Learning❤</b>
+
 I had weekly assignments as well; but I had to manage time at night to taste the best of both worlds. We were out to explore again, this time we were hosted by Shubho Sengupta, Senior Researcher in Facebook AI Research (FAIR); we got to see FAIR workspcaes; learned how things work within Facebook and even passed by Juckerberg's office, with him sitting in his office.
 
 <img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/fb1.jpg" height=153px><a> </a><img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/fb2.jpg" height=153px><a> </a><img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/fb3.jpg" height=153px><a> </a><img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/fb4.jpg" height=153px><a> </a>
