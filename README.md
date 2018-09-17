@@ -44,6 +44,8 @@ I had weekly assignments as well; but I had to manage time at night to taste the
 
 <img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/fb1.jpg" height=153px><a> </a><img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/fb2.jpg" height=153px><a> </a><img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/fb3.jpg" height=153px><a> </a><img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/fb4.jpg" height=153px><a> </a>
 
+We were on a roll; met Aman Raj from Googleplex, It was very exciting and wonderful when he showed us (me and Rutul) around campus and we learned a lot from him. Very humble and very down to Earth, we were meeting the right people in the valley. We were learning a lot; I was Happy. Apart from visiting Silicon valley ; this time me and some of my Chinese and Taiwanese friends visited San Francisco. Chilly weather; Cold Breeze ; 🌊San Francisco is beautiful. Visited the Golden Gate Bridge; Pier 39; California Academy of Science and lot more. It was a wonderful day; explored a lot and the day ended with dinner in China-Town. I captured some of the moments in this 🔮[vlog](https://youtu.be/sHtoGgdTFc0) 🔮, hope you like it.
+
 <b> #SILICON VALLEY 🌃🚀 </b>
 
 <b> #POST STANFORD 🌏 </b>
