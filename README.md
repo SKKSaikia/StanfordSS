@@ -27,8 +27,10 @@ I was Excited; yet a bit worried at the same time; None of my family members fro
 
 <b> #POST STANFORD 🌏 </b>
 
+With a heavy heart; I bid goodbye to STANFORD, group hugged my room-mate Yulong and my Good friend Laura in the San Francisco International Airport. We knew; it was a goodbye for a very long time. Goodbye 💐 skk will always be there for you. Though it was only a quarter; I felt I knew them for a lifetime. It was hard, but it is the beauty of Life. My family was waiting back home. Skk flies out of SFO ; lands in INDIA (Mumbai).
+
+By then I made a lot of new friends Internationally, who were doing amazing things in CS; The day I landed, I met my friend Kalpit Veerwal from IIT Bombay, CSE [Yes, the topmost computer science school in India] and he showed me around campus. Kalpit was the topper in IIT JEE - M , scoring a perfect 360/360; ending in Limca book of records; Yes, the same exam I didn't make through. Life is beautiful. The twists are turns in life will take you where you belong; you just have to be yourself.
+
+
 What do I miss most about Silicon Valley ?<br/>
 The people ; the community; and the craziness that goes around there. With a soothing weather, that helps concentrate and really dedicate oneself to something; is to die for.
-
-With a heavy heart; I bid goodbye ; to STANFORD, group hugged my room-mate Yulong and my Good friend Laura in the San Francisco International Airport. We knew; it was a goodbye for a very long time. Goodbye 💐 skk will always be there for you. Though physcially separated; I felt I knew them for a lifetime. It was hard, but it is the beauty of Life. My family was waiting back home. Skk flies out ; lands in INDIA.
-
