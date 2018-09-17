@@ -52,6 +52,8 @@ I knew I had to meet all the legends ( <b>IAN Goodfellow</b> (Father of Deep Lea
 
 I was sitting right there in my room-317 ; chuckled; I felt very lucky , Peter's AIMA ; Ian's Deep Learning ; Guido's Python & Jeff's Work are extraordinary and they are one in the whole world, and I was right there with them. Such Happiness and Inspiration. In no time I found myself chatting with <b> François Chollet </b> (Father of Keras) ;<b> Geoffrey Hinton </b>( Father of Deep Learning; I guess I don't have to introduce him ) ; Sheryl Sandberg; Steve Wozniak - and in no time ; I was in the heart of <b>Deep Learning❤</b>
 
+<img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/fg.jpg">
+
 I had weekly assignments as well; but I had to manage time at night to taste the best of both worlds. We were out to explore again, this time we were hosted by Shubho Sengupta, Senior Researcher in Facebook AI Research (FAIR); we got to see FAIR workspcaes; learned how things work within Facebook and even passed by Juckerberg's office, with him sitting in his office.
 
 <img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/fb1.jpg" height=153px><a> </a><img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/fb2.jpg" height=153px><a> </a><img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/fb3.jpg" height=153px><a> </a><img src="https://github.com/SKKSaikia/StanfordSS/blob/master/img/fb4.jpg" height=153px><a> </a>
