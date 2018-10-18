@@ -20,7 +20,7 @@
 
 <b> #SAN FRANCISCO 🌉✈ </b>
 
-<p align="justify">Journey to SF, California would have been very hard and daunting without my cousin - Dhrubajyoti Da's support; He managed everything from exchanging currency💱 to dropping me at airport for departure. Cousins friend - Subrata Da; who worked in California came to pick me up at SFO; without him , I would have been lost the first day. He showed me around the city and I took a good night's rest after dinner at a fancy restaurent; the next day was the day I was waiting for, <b>"STANFORD"</b>💟 | I was finally going to see "STANFORD" for the first time. All the flashbacks; all the memories of my parents came right in-front of my eyes. Thank You Mother, Father and Sister. I love you soo much💗.</p>
+<p align="justify">Journey to SF, California would have been very hard and daunting without my cousin - Dhrubajyoti Da's support; He managed everything from exchanging currency💱 to dropping me at airport for departure. Cousin's friend - Subrata Da; who worked in California came to pick me up at SFO; without him , I would have been lost the first day. He showed me around the city and I took a good night's rest after dinner at a fancy restaurent; the next day was the day I was waiting for, <b>"STANFORD"</b>💟 | I was finally going to see "STANFORD" for the first time. All the flashbacks; all the memories of my parents came right in-front of my eyes. Thank You Mother, Father and Sister. I love you soo much💗.</p>
 
 <b> #STANFORD 🏰⛅⛲ </b>
 
